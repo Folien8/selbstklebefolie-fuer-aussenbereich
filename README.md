@@ -1,0 +1,1 @@
+# selbstklebefolie-fuer-aussenbereich
